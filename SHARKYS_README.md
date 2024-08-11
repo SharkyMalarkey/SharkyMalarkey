@@ -2,7 +2,7 @@
 - 👀 I’m interested in speedcubing, math, STEM, and computer science.
 - 🌱 I’m currently learning nothing ATM.
 - 💞️ I’m looking to collaborate on nothing ATM.
-- 📫 How to reach me - email me.
+- 📫 How to reach me - nothing ATM.
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I'm open to learning new things 👍👍👍.
 
